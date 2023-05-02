@@ -23,6 +23,7 @@ All these devices are combined together to create a compact device that is used 
 
 ![IMG_483669CDA3A8-1](https://user-images.githubusercontent.com/112074005/235614884-c53da880-6348-453e-9b67-40559f7928a3.jpeg)
 ![IMG_0207 копия](https://user-images.githubusercontent.com/112074005/235615174-faca9df1-7669-4caf-b657-30df6fb2792d.jpg)
+![IMG_0210](https://user-images.githubusercontent.com/112074005/235615306-1999c075-07ae-4e67-840c-7e53941d08a6.jpg)
 
 
 
